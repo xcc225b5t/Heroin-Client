@@ -4,4 +4,4 @@ For 5b5t only
 
 THANK U LUNAM5 FOR TROLLHACK
 
-Thank u Keleemo,3uer,Sirwrng,and seamuss for the support
+Thank u Keleemo,3uer,Sirwrng,earnie,femboydemolisher,and seamuss for the support
